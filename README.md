@@ -1,0 +1,1 @@
+# Remove_espa-os_de_planilha_MantendoZeros_-_Esquerda
